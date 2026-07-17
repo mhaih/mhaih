@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me \
     fb: https://www.facebook.com/profile.php?id=100050109434598 \
-    chess.com: https://www.chess.com/member/haihoang357
+    chess.com: https://www.chess.com/member/haimhoang3
 - 😄 Pronouns: he/him
 - ⚡ Fun fact:...
 - 
